@@ -25,9 +25,6 @@ When you have a free moment, create a Google Drive folder named "VA Records" and
 
 I’m happy to chat via Teams, text, or grab a coffee in the Nashua/Boston area to go over this. Take it one step at a time, and it’ll be a breeze. Reach out anytime.
 
-Semper Fi,
-
-Roger McNulty 603-931-0900 sa1tieusmc@gmail.com
 
 Additional Information & Instructions
 The "Intent to File" (Locking in Your Backpay)
